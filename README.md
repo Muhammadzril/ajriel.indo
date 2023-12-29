@@ -1,0 +1,2 @@
+# ajriel.indo
+projek awal
